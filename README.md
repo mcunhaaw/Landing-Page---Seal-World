@@ -4,7 +4,7 @@ O objetivo dessa página é atrair e educar o público sobre a fascinante vida d
 promovendo a valorização desses carismáticos mamíferos marinhos.
 
 Fiz uma breve apresentação das focas, despertando a curiosidade e mencionando os objetivos da página, como suas características físicas, exploração do comportamento das focas 
-em terra e na água, incluindo caça, natação e habitats. Destaque das habilidades extraordinárias, como a capacidade de prender a respiração e a navegação baseada em bigodes.
+em terra e na água, incluindo caça, natação e habitats. Destaque das habilidades extraordinárias, como a capacidade de prender a respiração.
 Também há o compartilhamento de informações interessantes e ênfase na importância da proteção das focas e seus habitats.
 
 Incentivar os visitantes a se aprofundar no tema, doar para ações de conservação ou compartilhar seus conhecimentos.
